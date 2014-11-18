@@ -1,2 +1,4 @@
 hell
-wassup
+wassu
+this class is looking interesting...
+maybe i am attentive..
